@@ -1,3 +1,0 @@
-Intel
-SEYTMEMET-TB 
-23 мая 2017 г.  14:35:32
